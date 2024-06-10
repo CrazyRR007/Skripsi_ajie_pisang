@@ -1,0 +1,1 @@
+# Skripsi_ajie_pisang
